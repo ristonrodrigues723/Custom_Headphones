@@ -7,3 +7,6 @@ this should be fun whay im stuck at is should i go witjh diiff modulr intyegrsti
 ![image](https://github.com/user-attachments/assets/3d4c4e93-42b4-4026-988f-6f4484e0706b)
 compeletely lost spent half and hour deawing band base for a 3 way folding band when i vcame to know that the bse needs tobe changed
 
+so human head is 16 cm so arc will be 256 cm semi sth all changed as needed ![image](https://github.com/user-attachments/assets/f1374caf-055f-44b9-b99f-dcac2f149847) oill put ht onshape tracking at end
+
+
