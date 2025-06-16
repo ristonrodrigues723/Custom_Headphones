@@ -3,3 +3,7 @@ there are some basic designs il,have to refer those oart availibility is til a c
 
 what i did serched yt, forms and found no tuturials that tach me what i want still i cna do this it wont be difficult to do
 this should be fun whay im stuck at is should i go witjh diiff modulr intyegrstion increases budget bu a lot ot use old modules i alraeady have
+
+![image](https://github.com/user-attachments/assets/3d4c4e93-42b4-4026-988f-6f4484e0706b)
+compeletely lost spent half and hour deawing band base for a 3 way folding band when i vcame to know that the bse needs tobe changed
+
